@@ -1,0 +1,1 @@
+The Okeyego Governance Token (OGT) empowers holders with voting rights to shape the future of the Okeyego ecosystem. Governed by community consensus, OGT plays a pivotal role in decision-making processes, ensuring transparency and decentralization within the platform.
